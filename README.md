@@ -1,2 +1,2 @@
-# proxy-scripts
-Proxy scrits
+# Proxy scrits
+💣 ⚠️ ☠️ Danger zone!!!
